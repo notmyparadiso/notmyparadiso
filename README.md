@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/Zy4Qac38k0TT_wEe/artbylps3573ontwt">
+  <img src="https://static.wikia.nocookie.net/pocketmirror/images/0/0d/Fleta_Sprite_GoldenerTraum.png/revision/latest?cb=20230708203920">
   </p
    < div align=center>
 
